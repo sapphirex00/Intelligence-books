@@ -1,5 +1,5 @@
 # Intelligence books
-#### This is a personal list made using different resources in order to create a curated compilation of the best/recommended books for those interested in Intelligence and CounterIntelligence history, reports and events from WWII until today's challenges. 
+#### This is a personal list made using different resources in order to create a curated compilation of the best/recommended books for those interested in Intelligence and CounterIntelligence history, reports and events from WWII - Today
 
 
 ## CIA History
